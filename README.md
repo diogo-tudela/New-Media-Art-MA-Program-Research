@@ -1,0 +1,4 @@
+# New-Media-Art-MA-Program-Research
+
+METHODS AND TACTICS FOR THE NEW MEDIA ART MA PROGRAM
+a)  
